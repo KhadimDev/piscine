@@ -1,1 +1,1 @@
-Hello, Cheikh Ahmadou Bamba Faye !!!
+Hello, Cheikh A. B. Faye !!!
